@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: art... lets make art...
 - 📫 How to reach me: elons X app
 - 😄 Pronouns: 1/1
-- ⚡ Fun fact: im gay
+- ⚡ Fun fact: ur gay
 
 <!---
 SOLXMR/SOLXMR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
